@@ -34,5 +34,5 @@ Podemos modificar estos Términos de Servicio en cualquier momento. Te notificar
 
 ## 8. Contacto
 
-Si tienes alguna pregunta sobre estos Términos de Servicio, puedes contactarnos a través de [correo electrónico](mailto:tucorreo@ejemplo.com).
+Si tienes alguna pregunta sobre estos Términos de Servicio, puedes contactarnos a través de [correo electrónico](nilratsv@gmail.com).
 
